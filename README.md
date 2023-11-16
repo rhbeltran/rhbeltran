@@ -5,6 +5,8 @@
 
 - 📫 Mi correo de contacto es **rhbeltran@puce.edu.ec**
 
+- ⚡ Fun fact **Pienso que soy una persona curiosa, sincera y divertida si se me conoce bien, y que se esfuerza lo posible para lograr con una meta propuesta.**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
